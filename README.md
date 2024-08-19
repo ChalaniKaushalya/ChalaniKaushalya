@@ -23,7 +23,7 @@ I'm a passionate developer and tech enthusiast with a love for exploring new tec
 
 ## 📫 How to Reach Me
 - **LinkedIn**: [Chalani Kaushalya](https://www.linkedin.com/in/chalani-kaushalya-60812a2a5/)
-- **Email**: c.k.srimali@gmail.com
+- **Email**: chalanikaushalya417@gmail.com
 
 ## 😄 Pronouns
 - She/Her
